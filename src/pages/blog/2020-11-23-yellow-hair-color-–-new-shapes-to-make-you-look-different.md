@@ -24,6 +24,14 @@ This will make your yellow hair dye look different every time. To add a little b
 
 However, if you have dark skin, then going for a darker color would be a good idea. Another thing that you can do to make your own unique Yellow Hair is by having a different color or style on both sides of your head. You can have a ponytail on both sides. You may also consider going in for a French twist which can give your hair a slightly wavy look. You can even have your hair cut and styled in layers.
 
+<!--StartFragment-->
+
+<img src="https://shortbestnewhair.com/wp-content/uploads/2020/11/yellowhaircolor1.png"></a>
+
+<!--EndFragment-->
+
+
+
 It is important that you keep your yellow blonde hair simple because your yellow hair dye should not take too much time to look good on you. You can also use highlights on both the sides of
 your head but this will require that you keep styling your yellow blonde hair after a certain point in your hair design boy’s yellow hair dye.
 
